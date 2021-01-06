@@ -1,2 +1,3 @@
 # EDS-124BR
-Portfolio
+
+Week 1 Snap Video Explanation: https://youtu.be/LGZoql9uEak
