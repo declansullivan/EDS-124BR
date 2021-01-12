@@ -6,3 +6,4 @@ Snap Video Explanation: https://youtu.be/LGZoql9uEak
 
 ## Week 2
 Snap Video Explanation: https://youtu.be/R-Qva2KzwRk - Dancing
+Snap Video Explanation: https://youtu.be/HAHNFQUHCvI - Animal Zoo
