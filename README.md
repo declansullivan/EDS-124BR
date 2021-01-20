@@ -8,3 +8,6 @@ Snap Video Explanation: https://youtu.be/LGZoql9uEak
 Snap Video Explanation: https://youtu.be/R-Qva2KzwRk - Dancing
 <br>
 Snap Video Explanation: https://youtu.be/HAHNFQUHCvI - Animal Zoo
+
+## Week 3
+Snap Video Explanation: https://youtu.be/9Mm5CrOniT8 - Monkey
