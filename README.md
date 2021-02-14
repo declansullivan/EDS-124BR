@@ -18,3 +18,6 @@ Snap Video Explanation: https://youtu.be/fuAWbX2tho8
 
 ## Week 5
 Snap Video Explanation: https://youtu.be/dOnMMfgD0-c
+
+## Week 6
+Snap Video Explanation: https://youtu.be/lR9_HgUH8zI
