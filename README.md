@@ -24,3 +24,6 @@ Snap Video Explanation: https://youtu.be/lR9_HgUH8zI
 
 ## Week 7
 Snap Video Explanation: https://youtu.be/rdeUAdVW8-U
+
+## Week 8
+Snap Video Explanation: https://youtu.be/-wg14tOwhcA
